@@ -10,3 +10,5 @@
 2111981222<br>
 4)Sahnevaj Alam<br>
 2113986034<br></p>
+<br>
+Static : https://amank736836.github.io/TGIHCUHP/
